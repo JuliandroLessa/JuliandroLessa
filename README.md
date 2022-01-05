@@ -2,7 +2,7 @@
 
 
 - 🔭 Hoje trabalho como cabeleireiro 💇
-- 🌱 estudo começando a estudar programação 👨‍💻
+- 🌱 estou começando a estudar programação 👨‍💻
 - 📫 contate me no meu email: lessajuliandro@gmail.com
 - 😄 Pronouns: Ele/Dele
 - ⚡ Fun fact: ... 😂
